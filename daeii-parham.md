@@ -4,6 +4,7 @@
 • ⚛️ᴛᴏᴋᴇɴ=' ¯̄ ͡ ̶๖᷿ۣۜζ͜͡Dᴀᴇɪɪ Pᴀʀʜᴀᴍ ࿐#2576'⚛️
 • ⚠️ᴘʀᴇꜰɪx='!ᴘᴀʀʜᴀᴍ'⚠️
 • 🔰https://discord.gg/sAYaTTgGxm🔰
+• 🔰https://discord.gg/Y2TX4WQvFf🔰
 • 🔰https://github.com/DaeiiParham🔰
 --------------------------------------
 🌐-ʟᴀʀɢᴇ ᴄᴏᴍᴍᴜɴɪᴛʏ: </ᴅɪꜱᴄᴏʀᴅ™️> , </daeii_parham™️>🌐
@@ -16,4 +17,5 @@
 --------------------------------------
 🔰ʟɪɴᴋꜱ ᴛᴏ ᴏᴜʀ ᴄᴏᴍᴍᴜɴɪᴛʏ ᴄʜᴀɴɴᴇʟꜱ :
 • 🔰https://discord.gg/sAYaTTgGxm🔰
+• 🔰https://discord.gg/Y2TX4WQvFf🔰
 • 🔰https://github.com/DaeiiParham🔰
